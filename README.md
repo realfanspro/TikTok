@@ -8,4 +8,4 @@ Tiktok作为全球最受欢迎的短视频平台之一，拥有数以亿计的�
 
 因此，在使用Tiktok刷粉平台时，用户需要谨慎对待，选择正规的平台，避免购买虚假粉丝，同时也要注意平台的合规性，避免违反Tiktok的规定。
 
-更多 关于Tiktok刷粉平台，点此联系[传送](https://realfans.pro)
+更多 关于Tiktok刷粉平台，[点此查看](https://realfans.pro)
